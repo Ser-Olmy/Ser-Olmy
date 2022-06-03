@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ser-Olmy
+- 👀 I’m interested in - messing about with code and electric vehicles
+- 🌱 I’m currently learning to - cope
+- 💞️ I’m looking to collaborate on - nothing yet
+- 📫 How to reach me - via message I guess
